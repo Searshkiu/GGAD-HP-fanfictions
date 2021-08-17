@@ -1,15 +1,3 @@
-<head>
-    <script src="https://cdn.mathjax.org/mathjax/latest/MathJax.js?config=TeX-AMS-MML_HTMLorMML" type="text/javascript"></script>
-    <script type="text/x-mathjax-config">
-        MathJax.Hub.Config({
-            tex2jax: {
-            skipTags: ['script', 'noscript', 'style', 'textarea', 'pre'],
-            inlineMath: [['$','$']]
-            }
-        });
-    </script>
-</head>
-
 # GGAD-HP-fanfictions
 主GGAD、副HP扫文整理（时间线顺序）
 ***
@@ -349,4 +337,4 @@ HP影评文集
 
 ◎ 
 
-- 【第四次编辑】2021.08.17把email搬到`github`上来，增补了 $L_AT_E^X$ 
+- 【第四次编辑】2021.08.17把email搬到`github`上来，增补了 $L_AT_E^X$ ~~结果发现`GitHub`不支持~~
