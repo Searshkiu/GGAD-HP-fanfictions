@@ -2,8 +2,11 @@
 主GGAD、副HP扫文整理（时间线顺序）
 
 ### 目录
-|Part_Name|link|
-|:-----:|-----|
+|Part_Name|
+|:-----:|
+|[目录](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#%E7%9B%AE%E5%BD%95)|
+|正文|
+
 
 ### 正文（又称扫文总结）
 虽然似乎写下这段时间以来和GGAD的事就等于亲手斩断了这段对GGAD仅存的缘分*，但是想想还是要留下点什么，就不再多虑了。  
