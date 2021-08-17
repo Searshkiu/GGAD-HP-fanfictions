@@ -52,16 +52,16 @@ http://www.lofter.com/lpost/2f2903_d0d72e7
 https://wap.jjwxc.com/book2/1792763?more=0&whole=1  
 （甜哭。要是时间能等等盖勒特，要是时间能留住阿不思，要是盖勒特能醒悟快一点，要是阿不思能离去的慢一点，要是盖勒特能对阿不思珍惜一点，要是阿不思能对盖勒特吐露出的他们的计划的缺陷多一点，要是盖勒特能耐心一点、沉稳一点、成熟一点……也许这就会是近百年的守望后的结局……糖到最后都成了刀……老头们的爱情悲剧让我这没读完罗密欧与朱丽叶的可怜麻瓜的心在痛哭流涕。  
 结局录：  
->突然之间，一切都变得清爽明净了，地板上光洁如新，尸体和血迹不见踪影。明媚的阳光从穹顶上直射进来，浓雾散去了，白光不见了，露出一扇高大的白色拱门，门没有关好，露出一道缝隙，隐约能听到门外的海风声。
-邓布利多向门口走去，他走了几步，转过身来。
-“你不走吗？”他问。
-格林德沃坐在原地，蓝眼睛盯着白巫师，像是在看着末日的背影。（/小刀）
-“去哪里？”他问，声音轻的几乎听不见。
-“我不知道，”邓布利多回答，“不过，似乎有很多地方，我们曾经说过要去。”（/糖）
-黑巫师发出哽咽似的笑声，他站起来，把伏地魔的魔杖扔在地上。（/啊！哽咽似的笑声！啊，沉重的轻浮，铅铸的羽毛，……/忘了尴尬……莎剧威武！）
-“的确，”他说，声音又变得平稳，“有很多地方。不过也许我们已经走不动了。”（/期待脸，盖尔撒娇）
-“我们可以慢慢走。”邓布利多说，他等待了片刻，直到格林德沃走到他身边，黑袍和白袍的肩部不远不近地挨着。（/甜哭）
-他伸手推开了门。（/哭）
+>突然之间，一切都变得清爽明净了，地板上光洁如新，尸体和血迹不见踪影。明媚的阳光从穹顶上直射进来，浓雾散去了，白光不见了，露出一扇高大的白色拱门，门没有关好，露出一道缝隙，隐约能听到门外的海风声。  
+邓布利多向门口走去，他走了几步，转过身来。  
+“你不走吗？”他问。  
+格林德沃坐在原地，蓝眼睛盯着白巫师，像是在看着末日的背影。（/小刀）  
+“去哪里？”他问，声音轻的几乎听不见。  
+“我不知道，”邓布利多回答，“不过，似乎有很多地方，我们曾经说过要去。”（/糖）  
+黑巫师发出哽咽似的笑声，他站起来，把伏地魔的魔杖扔在地上。（/啊！哽咽似的笑声！啊，沉重的轻浮，铅铸的羽毛，……/忘了尴尬……莎剧威武！）  
+“的确，”他说，声音又变得平稳，“有很多地方。不过也许我们已经走不动了。”（/期待脸，盖尔撒娇）  
+“我们可以慢慢走。”邓布利多说，他等待了片刻，直到格林德沃走到他身边，黑袍和白袍的肩部不远不近地挨着。（/甜哭）  
+他伸手推开了门。（/哭）  
  
 实质是天黑请闭眼的烧脑游戏，但是好人在邓邓的愿望下死而复生，双眼澄澈，朝气蓬勃，WONDERFUL。  
 还有不少GGAD文在里面，比如永不回顾。  
@@ -107,7 +107,7 @@ https://yejing95.lofter.com/post/1dd36a6b_d3eed7a
   
  #### Part2 
 下面是正正经经的HP追文
-（时间：大约5.1到5.8，和GGAD同步穿插）
+（时间：大约5.1到5.8，和GGAD同步穿插）  
 ◎ `HP阅读未来`  
 https://wap.jjwxc.net/book2/1592238？more=0&whole=1  
 （有GGAD人物分析值得看；周更的有生之年系列。那熟悉的霍格沃茨怀抱又回来了⊙▽⊙）  
@@ -142,93 +142,53 @@ https://zhuanlan.zhihu.com/p/104280678
 http://www.jjwxc.net/onebook.php?novelid=2426586 
 （一个格林德沃赎罪的故事，看起来最后HE了，但是——  
 明天怎么会不到来呢？时间的滚轮早已碾过所有不论是怎样的诉求向前走了。时间还要向前，两个老人却留在昨天，留在车水马龙的上个时代。即使付出的代价不能让他们走向美好结局，但是盖勒特为了营救阿不思，看他再笑一次，付出重演悲剧的代价——即使是一眼也胜于无，即便为所爱之人赴汤蹈火。（戳））  
-◎**【FB/HP/GGAD】神奇动物与电影光球**
-1-3    http://mingcao.lofter.com/post/1cb4130d_12cf33566
-
-4-6    http://mingcao.lofter.com/post/1cb4130d_12d05dd4f
-
-7-11   http://mingcao.lofter.com/post/1cb4130d_12d178e6b
-
-12-13  http://mingcao.lofter.com/post/1cb4130d_12d27efc3
-
-14-16  http://mingcao.lofter.com/post/1cb4130d_12d3b5f06
-
-17-21  http://mingcao.lofter.com/post/1cb4130d_12d43d383
-
-22-24  http://mingcao.lofter.com/post/1cb4130d_12d4c781a
-
-25-27  http://mingcao.lofter.com/post/1cb4130d_12d5c1398
-
-`28-30`  http://mingcao.lofter.com/post/1cb4130d_12d60cc6b
-
-（看到结局前几段的解谜环节如鲠在喉（盖尔的忏悔――），即使最后的高糖利刃也冲不去悲伤的感受――*One boy, at least, should walk away with a good life. Ours are long, long destroyed（35 owls）*. 这种悲剧式的爱撼动人心，名草胡诌的真相似乎有正典的味道，不论故事如何发展，带给人对身边的爱忽然的珍惜，都从中获益――一篇优秀的同人大概如此吧。
-
-你是否丧失了对生活的好奇心？你是否对“爱”已习以为常？你是否觉得他人对你的“爱”理所应当？你是否麻木自己的感官，任凭欲望将自己驱使？当你自以为看透他时，他是否已窥探到真正的脆弱的你？
-
-你被利用了吗？
-
-你有没有堕落在温柔乡中，醉生梦死虚枉时光？
-
-阿尔和盖尔，在各自的高塔上忏悔着。）
-
-◎**【GGAD】虚假传说**  作者：沉夙
-
-https://unjustifiable.lofter.com/post/1e3ca45e_d72b487
-
-（Summary：蹲监狱的老魔王在掉牙时遇到了牙齿精灵，牙齿精灵答应他一颗牙齿换一个愿望。又是一个悲伤的故事
-
-感觉不是很敢动但是又放不下……特别是标题戳我，牙仙的传说是虚假的，GGAD的故事是虚假的，HP系列是虚假的，但是我从这些虚假的故事中，感受到了真实的爱恨。）
-
-◎ 铭记夏日光辉-解宁
-
-https://abcfriends.lofter.com/post/1d947fca_d84615d
-
-（
+◎**【FB/HP/GGAD】神奇动物与电影光球**  
+1-3    http://mingcao.lofter.com/post/1cb4130d_12cf33566  
+4-6    http://mingcao.lofter.com/post/1cb4130d_12d05dd4f  
+7-11   http://mingcao.lofter.com/post/1cb4130d_12d178e6b  
+12-13  http://mingcao.lofter.com/post/1cb4130d_12d27efc3  
+14-16  http://mingcao.lofter.com/post/1cb4130d_12d3b5f06  
+17-21  http://mingcao.lofter.com/post/1cb4130d_12d43d383  
+22-24  http://mingcao.lofter.com/post/1cb4130d_12d4c781a  
+25-27  http://mingcao.lofter.com/post/1cb4130d_12d5c1398  
+`28-30`  http://mingcao.lofter.com/post/1cb4130d_12d60cc6b  
+（看到结局前几段的解谜环节如鲠在喉（盖尔的忏悔――），即使最后的高糖利刃也冲不去悲伤的感受――*One boy, at least, should walk away with a good life. Ours are long, long destroyed（35 owls）*. 这种悲剧式的爱撼动人心，名草胡诌的真相似乎有正典的味道，不论故事如何发展，带给人对身边的爱忽然的珍惜，都从中获益――一篇优秀的同人大概如此吧。  
+你是否丧失了对生活的好奇心？你是否对“爱”已习以为常？你是否觉得他人对你的“爱”理所应当？你是否麻木自己的感官，任凭欲望将自己驱使？当你自以为看透他时，他是否已窥探到真正的脆弱的你？  
+你被利用了吗？  
+你有没有堕落在温柔乡中，醉生梦死虚枉时光？  
+阿尔和盖尔，在各自的高塔上忏悔着。）  
+◎**【GGAD】虚假传说**  作者：沉夙  
+https://unjustifiable.lofter.com/post/1e3ca45e_d72b487  
+（Summary：蹲监狱的老魔王在掉牙时遇到了牙齿精灵，牙齿精灵答应他一颗牙齿换一个愿望。又是一个悲伤的故事  
+感觉不是很敢动但是又放不下……特别是标题戳我，牙仙的传说是虚假的，GGAD的故事是虚假的，HP系列是虚假的，但是我从这些虚假的故事中，感受到了真实的爱恨。）  
+◎ 铭记夏日光辉-解宁  
+https://abcfriends.lofter.com/post/1d947fca_d84615d  
+（  
 >好像我已经爱了你很多年。
+  
+据说很好看但是我觉得一般……打开方式不对？）  
 
-据说很好看但是我觉得一般……打开方式不对？）
-
-◎ *乌姆里奇女士的霍格沃兹生活*
-上  https://zhj1006.lofter.com/post/47071d_12d3c50f9
-
-中  https://zhj1006.lofter.com/post/47071d_12d4dba53
-
-下  https://zhj1006.lofter.com/post/47071d_12df4c930
-
-（甜饼，战后gg到霍格沃茨任教AU）
-
-◎ **[GGAD]格林德沃的生平与真相**
-http://www.jjwxc.net/onebook.php?novelid=2581720
-
-（冥府八卦哈哈哈哈哈哈哈）
-
-◎ `GGAD 塔中梦`-凌均
-http://ggadisreal.lofter.com/post/1e8def65_e71d27f
-
-（lalaland×GGAD，lalaland的美丽虚幻我i了）
-
-◎【GGAD】《Truce》
-http://offhand.lofter.com/post/275bf0_d804f8a
-
-(停火）
-
-◎ [HP|GGAD]量子力学
-https://wap.jjwxc.net/book2/2221463
-
-（坑了www）
-
-◎ *[[HP/GGAD]死神的新娘](http://www.jjwxc.net/onebook.php?novelid=2426995)*
-
-（有一小点高堡奇人给我的感觉）
-
-◎ *[[HP]走过荆棘之旅](http://www.17899.jjwxc.net/onebook.php?novelid=1857482)*
-
-（侧面描写，要不是锁的章节太多它肯定是神文，对AD的人物性格刨析十分到位）
-
-◎ **[[HP|GGAD]晴空万里](http://www.jjwxc.net/onebook.php?novelid=1902772)**
-
-（GG与AD死后。感觉GG那“向前、向前”的执着画面感非常强。后面《无梦人》和《残阳》留给读者无限的想象空间，《残阳》尤甚，如果不是这篇我就打Ⅲ类了）
-
+◎ *乌姆里奇女士的霍格沃兹生活*  
+上  https://zhj1006.lofter.com/post/47071d_12d3c50f9  
+中  https://zhj1006.lofter.com/post/47071d_12d4dba53  
+下  https://zhj1006.lofter.com/post/47071d_12df4c930  
+（甜饼，战后gg到霍格沃茨任教AU）  
+◎ **[GGAD]格林德沃的生平与真相**  
+http://www.jjwxc.net/onebook.php?novelid=2581720  
+（冥府八卦哈哈哈哈哈哈哈）  
+◎ `GGAD 塔中梦`-凌均  
+http://ggadisreal.lofter.com/post/1e8def65_e71d27f  
+（lalaland×GGAD，lalaland的美丽虚幻我i了）  
+◎[【GGAD】《Truce》](http://offhand.lofter.com/post/275bf0_d804f8a)  
+(停火）  
+◎ [[HP|GGAD]量子力学](https://wap.jjwxc.net/book2/2221463)  
+（坑了www）  
+◎ *[[HP/GGAD]死神的新娘](http://www.jjwxc.net/onebook.php?novelid=2426995)*  
+（有一小点高堡奇人给我的感觉）  
+◎ *[[HP]走过荆棘之旅](http://www.17899.jjwxc.net/onebook.php?novelid=1857482)*  
+（侧面描写，要不是锁的章节太多它肯定是神文，对AD的人物性格刨析十分到位）  
+◎ **[[HP|GGAD]晴空万里](http://www.jjwxc.net/onebook.php?novelid=1902772)**  
+（GG与AD死后。感觉GG那“向前、向前”的执着画面感非常强。后面《无梦人》和《残阳》留给读者无限的想象空间，《残阳》尤甚，如果不是这篇我就打Ⅲ类了）  
 ◎ `[【GGAD】我们仍未知道那个混蛋勇士的名字](https://xuwu555.lofter.com/post/1e94b096_12d0f159b)*记住了所以不二刷三刷`
 
 （啊啊啊啊啊啊啊童话AU啊啊啊啊啊啊啊真的好甜，不过似乎套在HP每个角色上都可以？Anyway，童话我最喜欢啦❤ 说实在话，GGAD文我可能看沉重分析向看得太多，AU偶尔来调节心情也是一个不错的选择呐~）
