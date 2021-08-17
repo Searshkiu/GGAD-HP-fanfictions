@@ -1,6 +1,6 @@
 # GGAD-HP-fanfictions
 主GGAD、副HP扫文整理（时间线顺序）
-
+***
 ### 目录
 |Part_Name|SubPart_Name|
 |:-----:|:-----:|
@@ -13,6 +13,7 @@
 ||[Part5](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part5)|
 ||[Part6](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part6)|
 
+***
 ### 正文（又称扫文总结）
 虽然似乎写下这段时间以来和GGAD的事就等于亲手斩断了这段对GGAD仅存的缘分*，但是想想还是要留下点什么，就不再多虑了。  
 
@@ -55,6 +56,7 @@ GG和AD不是cp，只是恰好遇见的命中注定的人。只是他们恰好�
 Ⅲ *有创意有文笔的文*  
   
 #### Part1 
+- 疫情期间初二中段考后-返校前 【第一次编辑】
 
 ◎ `35 owls`  
 https://zhuanlan.zhihu.com/p/23822167  
@@ -132,8 +134,8 @@ https://yejing95.lofter.com/post/1dd36a6b_d3eed7a
 ◎   
   
  #### Part2 
-下面是正正经经的HP追文
-（时间：大约5.1到5.8，和GGAD同步穿插）
+- 下面是正正经经的HP追文
+- 时间：大约5.1到5.8，和GGAD同步穿插
 
 ◎ `HP阅读未来`  
 https://wap.jjwxc.net/book2/1592238？more=0&whole=1  
@@ -154,7 +156,8 @@ http://www.jjwxc.net/onebook.php?novelid=1806049
 ◎   
 
 #### Part3
-然后就是上学了还不务正业地追的GGAD文了，包括：
+- 然后就是上学了还不务正业地追的GGAD文了【第二次编辑】
+包括：
 
 ◎ [自用 | GGAD文整理](https://echooh.lofter.com/post/311b85_12d87da5f  )  
 （几乎全看了）  
