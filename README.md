@@ -209,6 +209,7 @@ https://abcfriends.lofter.com/post/1d947fca_d84615d
 |上|https://zhj1006.lofter.com/post/47071d_12d3c50f9|
 |中|https://zhj1006.lofter.com/post/47071d_12d4dba53|
 |下|https://zhj1006.lofter.com/post/47071d_12df4c930|
+
 （甜饼，战后gg到霍格沃茨任教AU）
 
 ◎ **[GGAD]格林德沃的生平与真相**  
@@ -336,3 +337,4 @@ HP影评文集
 
 ◎ 
 
+- 【第四次编辑】2021.08.17把email搬到`github`上来，增补了 $L_AT_EX$ 
