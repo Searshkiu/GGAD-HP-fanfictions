@@ -143,15 +143,15 @@ http://www.jjwxc.net/onebook.php?novelid=2426586
 （一个格林德沃赎罪的故事，看起来最后HE了，但是——  
 明天怎么会不到来呢？时间的滚轮早已碾过所有不论是怎样的诉求向前走了。时间还要向前，两个老人却留在昨天，留在车水马龙的上个时代。即使付出的代价不能让他们走向美好结局，但是盖勒特为了营救阿不思，看他再笑一次，付出重演悲剧的代价——即使是一眼也胜于无，即便为所爱之人赴汤蹈火。（戳））  
 ◎【FB/HP/GGAD】**神奇动物与电影光球**  
-1-3    http://mingcao.lofter.com/post/1cb4130d_12cf33566  
-4-6    http://mingcao.lofter.com/post/1cb4130d_12d05dd4f  
-7-11   http://mingcao.lofter.com/post/1cb4130d_12d178e6b  
-12-13  http://mingcao.lofter.com/post/1cb4130d_12d27efc3  
-14-16  http://mingcao.lofter.com/post/1cb4130d_12d3b5f06  
-17-21  http://mingcao.lofter.com/post/1cb4130d_12d43d383  
-22-24  http://mingcao.lofter.com/post/1cb4130d_12d4c781a  
-25-27  http://mingcao.lofter.com/post/1cb4130d_12d5c1398  
-`28-30`  http://mingcao.lofter.com/post/1cb4130d_12d60cc6b  
+| 1-3  | http://mingcao.lofter.com/post/1cb4130d_12cf33566  |
+| 4-6  | http://mingcao.lofter.com/post/1cb4130d_12d05dd4f  |
+|7-11  | http://mingcao.lofter.com/post/1cb4130d_12d178e6b  |
+|12-13 | http://mingcao.lofter.com/post/1cb4130d_12d27efc3  |
+|14-16 | http://mingcao.lofter.com/post/1cb4130d_12d3b5f06  |
+|17-21 | http://mingcao.lofter.com/post/1cb4130d_12d43d383  |
+|22-24 | http://mingcao.lofter.com/post/1cb4130d_12d4c781a  |
+|25-27 | http://mingcao.lofter.com/post/1cb4130d_12d5c1398  |
+|`28-30` | http://mingcao.lofter.com/post/1cb4130d_12d60cc6b  |
 （看到结局前几段的解谜环节如鲠在喉（盖尔的忏悔――），即使最后的高糖利刃也冲不去悲伤的感受――*One boy, at least, should walk away with a good life. Ours are long, long destroyed（35 owls）*. 这种悲剧式的爱撼动人心，名草胡诌的真相似乎有正典的味道，不论故事如何发展，带给人对身边的爱忽然的珍惜，都从中获益――一篇优秀的同人大概如此吧。  
 你是否丧失了对生活的好奇心？你是否对“爱”已习以为常？你是否觉得他人对你的“爱”理所应当？你是否麻木自己的感官，任凭欲望将自己驱使？当你自以为看透他时，他是否已窥探到真正的脆弱的你？  
 你被利用了吗？  
@@ -226,7 +226,7 @@ GG啊AD啊罗琳老贼啊不要拿我来玩了好不好www /细思恐极）
 爱是什么？爱是世间最美好的盛夏，是荒凉原野的新生，是金碧辉煌的殿堂，爱神为天才加冕；是黑暗中的撕心裂肺，是刀刃留的刻骨铭心，是半个世纪的独自忏悔。但是爱能改变一切――爱是什么？  
 爱是魔法。把他的梦境变成完整的圆。  
 梦醒了。过去已经翻篇。  
-（眼底泛起水雾，鼻头微酸，真香 / 三天9h37万字我真棒）
+（眼底泛起水雾，鼻头微酸，真香 / 三天9h37万字我真棒）  
 标志着……老头女孩长大了？？
 
 2020.09.22）
@@ -238,47 +238,63 @@ GG啊AD啊罗琳老贼啊不要拿我来玩了好不好www /细思恐极）
 
 #### Part4
 还有其他上学后追的HP文，杂食：
-◎ [HP]UPSTAIRS
-http://www.jjwxc.net/onebook.php?novelid=1299678
+
+◎ **[[HP]UPSTAIRS](http://www.jjwxc.net/onebook.php?novelid=1299678)**
 (很温馨很美好又很现实很戳心的短篇）
-◎ 詹姆波特生贺24H
+
+◎*詹姆波特生贺24H*
 https://www.lofter.com/tag/%E8%A9%B9%E5%A7%86%E6%B3%A2%E7%89%B9%E7%94%9F%E8%B4%BA24H
 （一堆太太的一堆文）
-◎ 【授权翻译】New Year
-http://tieba.baidu.com/p/5098470400?share=9105&fr=share&sfc=copy&client_type=2&client_version=11.7.8.0&st=1596511098&unique=2D4A271032DED3DB91DFC674F6CC8ED3
-（詹莉的甜文呐~大佬翻译~一些人的青春太绚烂了，又太短暂了，火流星一般照亮整个时代；我的青春呢，是否已被禁锢？）
+
+◎ `【授权翻译】New Year`  
+http://tieba.baidu.com/p/5098470400?share=9105&fr=share&sfc=copy&client_type=2&client_version=11.7.8.0&st=1596511098&unique=2D4A271032DED3DB91DFC674F6CC8ED3  
+（詹莉的甜文呐~大佬翻译~一些人的青春太绚烂了，又太短暂了，火流星一般照亮整个时代；我的青春呢，是否已被禁锢？）  
 ◎ 
 
 
+#### Part5
 分析文集（GGAD杂食HP）
-◎ 他一生之中唯有两次失手-解宁
+
+◎ `他一生之中唯有两次失手`-解宁
 https://abcfriends.lofter.com/post/1d947fca_dea30d1
-（/*
-“是我杀了我妹妹吗？
-她那么小，那么好。又软又暖的一小团，带着我妈妈的气息，窝在我怀里，打着小小的奶嗝儿睡着。
-是你杀了我妹妹吗？
-她原本要在我们的婚礼上，抱着满怀的捧花。”
-*/
+（
+>“是我杀了我妹妹吗？  
+她那么小，那么好。又软又暖的一小团，带着我妈妈的气息，窝在我怀里，打着小小的奶嗝儿睡着。  
+是你杀了我妹妹吗？  
+她原本要在我们的婚礼上，抱着满怀的捧花。”  
+ 
 神分析！给我哭！）
-◎ GGAD——论一个CP改变了我的什么-解宁
-https://abcfriends.lofter.com/post/1d947fca_dd1f39e
-（我希望我也能获得这么多；我写GGAD分析、深挖 HP的决心从此下定）
-◎ 两情若是久长时，又何妨GGAD（神动2影评）
-https://movie.douban.com/review/9789608/
+
+◎ `GGAD——论一个CP改变了我的什么`-解宁  
+https://abcfriends.lofter.com/post/1d947fca_dd1f39e  
+（我希望我也能获得这么多；我写GGAD分析、深挖 HP的决心从此下定）  
+
+◎ `两情若是久长时，又何妨GGAD`（神动2影评）  
+https://movie.douban.com/review/9789608/  
 （让人笑中心碎的不正经神评）
-◎ 《哈利·波特》系列中人物命运悲惨程度如何排名？
-https://www.zhihu.com/question/48275821/answer/110274781
-◎ 你·魔法·HP
-https://docs.qq.com/doc/DVHBBQ3BYTFRFbVlk?pub=1&dver=2.1.0
+
+◎ *[《哈利·波特》系列中人物命运悲惨程度如何排名？](https://www.zhihu.com/question/48275821/answer/110274781)*
+
+◎ `你·魔法·HP`  
+https://docs.qq.com/doc/DVHBBQ3BYTFRFbVlk?pub=1&dver=2.1.0  
 （我们能从HP中获得什么……警钟）
-◎ 
+
 ◎ 
 
+◎ 
+
+#### Part6
 HP影评文集
-◎ 《哈利· 波特》原著里的这些经典段落，电影里没了好可惜
-https://www-360doc-cn.mipcdn.com/c/www.360doc.cn/mip/599729779.html#&lid=12035665419257712004&srcid=1599&mipanchor=&eqid=a70745ee5e4f0d84100000065eed9f88&from=result&searchFrom=1001190j&sids=148867_146732_138426_149558_147527_148201_148185_147715_150044_149280_145608_146785_146054_148828_148105_110085&mipService=1&order=1&cambrian={%22type%22:%22cambrian%22,%22logo%22:%22//cambrian-images.cdn.bcebos.com/fbdecf482b56d314fb6b9114cc180290_1549328666522086.jpeg%22,%22title%22:%22个人图书馆%22}
+
+◎ *[哈利· 波特》原著里的这些经典段落，电影里没了好可惜](https://www-360doc-cn.mipcdn.com/c/www.360doc.cn/mip/599729779.html#&lid=12035665419257712004&srcid=1599&mipanchor=&eqid=a70745ee5e4f0d84100000065eed9f88&from=result&searchFrom=1001190j&sids=148867_146732_138426_149558_147527_148201_148185_147715_150044_149280_145608_146785_146054_148828_148105_110085&mipService=1&order=1&cambrian={%22type%22:%22cambrian%22,%22logo%22:%22//cambrian-images.cdn.bcebos.com/fbdecf482b56d314fb6b9114cc180290_1549328666522086.jpeg%22,%22title%22:%22个人图书馆%22})*
+
 ◎ 
+
 ◎ 
+
 ◎ 
+
 ◎ 
+
 ◎ 
+
