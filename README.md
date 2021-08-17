@@ -41,7 +41,7 @@ GG和AD不是cp，只是恰好遇见的命中注定的人。只是他们恰好�
 看过之后被感动得五体投地……  
 Ⅲ *有创意有文笔的文*  
   
-  
+#### Part1 
 ◎ `35 owls`  
 https://zhuanlan.zhihu.com/p/23822167  
 （经典）  
@@ -105,44 +105,44 @@ https://yejing95.lofter.com/post/1dd36a6b_d3eed7a
 ◎   
 ◎   
   
-  
+ #### Part2 
 下面是正正经经的HP追文
 （时间：大约5.1到5.8，和GGAD同步穿插）
-◎ HP阅读未来
-https://wap.jjwxc.net/book2/1592238？more=0&whole=1
-（有GGAD人物分析值得看；周更的有生之年系列。那熟悉的霍格沃茨怀抱又回来了⊙▽⊙）
-◎ HP真相与秘密
-https://wap.jjwxc.com/book2/778006?more=0&whole=1
-（lemon的早期作品（高二），虽然写的有点苏但是里面的美好何尝不是每个人想看到的呢）
-◎ [HP|GGAD]不得安宁
-http://www.jjwxc.net/onebook.php?novelid=1806049
-（平行世界人物替换，超甜的美好幻想）
-◎ [HP]哈利波特与七彩光球
-https://wap.jjwxc.net/book2/1819592?more=0&whole=1
-◎ [HP]国王游戏
-http://jjwxc.net/onebook.php?novelid=1804283
-（死亡游戏的同人）
-◎ 
+◎ `HP阅读未来`  
+https://wap.jjwxc.net/book2/1592238？more=0&whole=1  
+（有GGAD人物分析值得看；周更的有生之年系列。那熟悉的霍格沃茨怀抱又回来了⊙▽⊙）  
+◎ *HP真相与秘密*  
+https://wap.jjwxc.com/book2/778006?more=0&whole=1  
+（lemon的早期作品（高二），虽然写的有点苏但是里面的美好何尝不是每个人想看到的呢）  
+◎ **[HP|GGAD]不得安宁**  
+http://www.jjwxc.net/onebook.php?novelid=1806049  
+（平行世界人物替换，超甜的美好幻想）  
+◎ *[HP]哈利波特与七彩光球*  
+https://wap.jjwxc.net/book2/1819592?more=0&whole=1  
+◎ **[HP]国王游戏**  
+http://jjwxc.net/onebook.php?novelid=1804283  
+（死亡游戏的同人）  
+◎   
 
-
+#### Part3
 然后就是上学了还不务正业地追的GGAD文了，包括：
-◎ 自用 | GGAD文整理
-https://echooh.lofter.com/post/311b85_12d87da5f
-（几乎全看了）
-◎ GGAD扫文记录 20161201-20170228
-http://ggadsaowenhao.lofter.com/post/1eb5d09d_e748370
-（也几乎全看了）
-◎【GGAD】Lofter扫文整理
-https://xiao8zhangsun.lofter.com/post/1d11cb89_12cf1c913
-◎ 【GGAD】个人作品合集（2019.07.12更新）
-http://offhand.lofter.com/post/275bf0_e49ad49
-◎ 雲绯的推荐（除TR卢爹和芙蓉中心向）
-https://zhuanlan.zhihu.com/p/104280678
-◎ [HP/GGAD]明天永不到来
-http://www.jjwxc.net/onebook.php?novelid=2426586
-（一个格林德沃赎罪的故事，看起来最后HE了，但是——
-明天怎么会不到来呢？时间的滚轮早已碾过所有不论是怎样的诉求向前走了。时间还要向前，两个老人却留在昨天，留在车水马龙的上个时代。即使付出的代价不能让他们走向美好结局，但是盖勒特为了营救阿不思，看他再笑一次，付出重演悲剧的代价——即使是一眼也胜于无，即便为所爱之人赴汤蹈火。（戳））
-◎【FB/HP/GGAD】神奇动物与电影光球
+◎ 自用 | GGAD文整理  
+https://echooh.lofter.com/post/311b85_12d87da5f  
+（几乎全看了）  
+◎ GGAD扫文记录 20161201-20170228  
+http://ggadsaowenhao.lofter.com/post/1eb5d09d_e748370  
+（也几乎全看了）  
+◎【GGAD】Lofter扫文整理  
+https://xiao8zhangsun.lofter.com/post/1d11cb89_12cf1c913  
+◎ 【GGAD】个人作品合集（2019.07.12更新）  
+http://offhand.lofter.com/post/275bf0_e49ad49  
+◎ 雲绯的推荐（除TR卢爹和芙蓉中心向）  
+https://zhuanlan.zhihu.com/p/104280678  
+◎ `[HP/GGAD]明天永不到来`  
+http://www.jjwxc.net/onebook.php?novelid=2426586 
+（一个格林德沃赎罪的故事，看起来最后HE了，但是——  
+明天怎么会不到来呢？时间的滚轮早已碾过所有不论是怎样的诉求向前走了。时间还要向前，两个老人却留在昨天，留在车水马龙的上个时代。即使付出的代价不能让他们走向美好结局，但是盖勒特为了营救阿不思，看他再笑一次，付出重演悲剧的代价——即使是一眼也胜于无，即便为所爱之人赴汤蹈火。（戳））  
+◎**【FB/HP/GGAD】神奇动物与电影光球**
 1-3      http://mingcao.lofter.com/post/1cb4130d_12cf33566
 4-6      http://mingcao.lofter.com/post/1cb4130d_12d05dd4f
 7-11    http://mingcao.lofter.com/post/1cb4130d_12d178e6b
