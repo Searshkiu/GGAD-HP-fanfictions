@@ -6,12 +6,12 @@
 |:-----:|:-----:|
 |[目录](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#%E7%9B%AE%E5%BD%95)|-|
 |[正文](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#%E6%AD%A3%E6%96%87%E5%8F%88%E7%A7%B0%E6%89%AB%E6%96%87%E6%80%BB%E7%BB%93)|-|
-|[附录](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#%E9%99%84%E5%BD%95%E7%9C%8B%E8%BF%87%E7%9A%84%E6%96%87%E5%92%8C%E9%93%BE%E6%8E%A5%E4%B8%8D%E5%85%A8%E4%BB%A5%E5%8F%8A%E4%B8%80%E4%BA%9B%E6%84%9F%E6%83%B3)|[Part1](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part1)|
-||[Part2](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part2)|
-||[Part3](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part3)|
-||[Part4](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part4)|
-||[Part5](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part5)|
-||[Part6](github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part6)|
+|[附录](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#%E9%99%84%E5%BD%95%E7%9C%8B%E8%BF%87%E7%9A%84%E6%96%87%E5%92%8C%E9%93%BE%E6%8E%A5%E4%B8%8D%E5%85%A8%E4%BB%A5%E5%8F%8A%E4%B8%80%E4%BA%9B%E6%84%9F%E6%83%B3)|[Part1](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part1)|
+||[Part2](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part2)|
+||[Part3](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part3)|
+||[Part4](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part4)|
+||[Part5](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part5)|
+||[Part6](https://github.com/Searshkiu/GGAD-HP-fanfictions/blob/main/README.md#part6)|
 
 ### 正文（又称扫文总结）
 虽然似乎写下这段时间以来和GGAD的事就等于亲手斩断了这段对GGAD仅存的缘分*，但是想想还是要留下点什么，就不再多虑了。  
